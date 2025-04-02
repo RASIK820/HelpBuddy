@@ -17,7 +17,7 @@ like AMBULANCE FIRE SAFTY TEAM POLICE ETC
 
 🤝 Contributions
 Want to contribute? Follow these steps:
-Goto our official website or contact our teanm via contact number
+Goto our official website or contact our teanm via contact number.
 
 📢 Contact
 For questions or suggestions, reach out via email :  helpbuddy@gmail.com.
